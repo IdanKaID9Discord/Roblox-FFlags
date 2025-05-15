@@ -12,8 +12,6 @@
 
 🤓🤓
 
-<h4 align="center">Roblox profile</h4>
-<h5 align="center">https://www.roblox.com/users/6039680821/profile</h5>
 
 
 > [!CAUTION]
