@@ -8,7 +8,7 @@
 <h1 align="center">#FUCKFLAG$</h1>
 
 <h4 align="center">Join our Discord Server to contribute & expand our list (We need you)</h4>
-<h5 align="center">https://discord.gg/qCmdy4GMAx</h5>
+<h5 align="center">https://discord.gg/43kaU6j9yT</h5>
 
 🤓🤓
 
